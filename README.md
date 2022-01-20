@@ -14,5 +14,5 @@ om 20:44 neem ik pauze
 
 om 21:12 start ik weer
 
-om 22:09 neem ik pauze
+om 22:09 stop ik
  
