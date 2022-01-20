@@ -9,4 +9,6 @@ Ik begin om ongeveer 5 voor half 9 s'avonds 19-01-2022
 ik stop om 21:45
 
 ik begin weer om 19:32 20-01-2022
+
+om 20:44 neem ik pauze 
  
