@@ -16,3 +16,4 @@ om 21:12 start ik weer
 
 om 22:09 stop ik
  
+Ik begin om 20:00 23-01-2022
